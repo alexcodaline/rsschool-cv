@@ -1,3 +1,4 @@
 #Alexandr Ponomarenko
 ##Contacts
-*Telegram
+*Telegram: Alexandr_7772
+*Discord: OlexandrUA
